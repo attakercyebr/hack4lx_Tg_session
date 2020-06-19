@@ -3,18 +3,42 @@
 
 **********************************************************
 
-# Obtain the target location via the link
+
+
+ /$$                           /$$       /$$   /$$ /$$          
+| $$                          | $$      | $$  | $$| $$          
+| $$$$$$$   /$$$$$$   /$$$$$$$| $$   /$$| $$  | $$| $$ /$$   /$$
+| $$__  $$ |____  $$ /$$_____/| $$  /$$/| $$$$$$$$| $$|  $$ /$$/
+| $$  \ $$  /$$$$$$$| $$      | $$$$$$/ |_____  $$| $$ \  $$$$/ 
+| $$  | $$ /$$__  $$| $$      | $$_  $$       | $$| $$  >$$  $$ 
+| $$  | $$|  $$$$$$$|  $$$$$$$| $$ \  $$      | $$| $$ /$$/\  $$
+|__/  |__/ \_______/ \_______/|__/  \__/      |__/|__/|__/  \__/
+                                                                
+                                                                
+                                                                
+**********************************************************                                                         
+
+# Telegram hack
 </p>
 
 Hello friends
+
 🏴‍☠️ Telegram hack 💀
+
 👀 Steal the Telegram session☠️
+
 🦠 Passing the second Telegram password 👁‍🗨
+
 🗨 Without knowing the purpose 💪
+
 ♾ Less than 30 seconds ⏰
+
 ⚙️ With control panel by Telegram bot 🗝
+
 📩 Chrome bookmarks theft 📍
+
 🔐 And passwords stored by Target in the Bookmark ✂️
+
 Just pay attention to the instructional video
 
 
